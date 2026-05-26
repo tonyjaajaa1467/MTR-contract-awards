@@ -1,3 +1,3 @@
 # Hong Kong MTR
 # Notice of award of contract
-# 2013 - 2026
+# From 2013-Jan to 2026-May
